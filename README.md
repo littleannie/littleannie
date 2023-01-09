@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @littleannie
-- 👀 I’m interested sustainability
-- 🌱 Discover my profile : https://www.linkedin.com/in/annely75
-- 📫 How to reach me : anne.ly59@gmail.com 
+👋 Hi, I’m @littleannie
+
+👀 I’m interested sustainability
+📫 How to reach me : anne.ly59@gmail.com 
 
 <p align="left">Connect with me:</p>
 <p align="left">
