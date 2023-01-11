@@ -1,6 +1,6 @@
 👋 Hi, I’m @littleannie
 
-👀 I’m interested sustainability
+👀 I’m interested in sustainability
 
 📫 How to reach me : anne.ly59@gmail.com 
 
